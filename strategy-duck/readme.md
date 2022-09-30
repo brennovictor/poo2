@@ -1,1 +1,1 @@
-
+## Atividade em sala - Strategy
